@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my macroecology of fish migration blog
 
-I'm glad you are here. I plan to talk about ...
+I'm glad you are here. Let's get to work
